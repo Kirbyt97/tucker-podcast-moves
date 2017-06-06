@@ -50,3 +50,20 @@ I did not notice much, if any, use of this effect in *Serial*. If FX was used it
 Music is used infrequently in this series. It is often reserved only for major plot points. Music is also used when it is clearly relevant, such as when a particular song was mentioned is it played in the background.
 
 The theme song played reflects the mood of the series outstandingly. This song is played at the beginning and end of each episode and is also used sometimes when there is an important point. The song is slightly eerie, but also portrays a sense of inquisitiveness. This inquisitive sound reflects Koenig's own curiosity in this murder case. Sound does a great deal to affect the human mood and by playing this song at the beginning of each episode the listener is always in the proper mindset to hear what comes next.
+
+## Narrative Conventions
+
+### Use of the Interview
+
+*Serial* relies heavily on interviews. Koenig personally interviewed most major witnesses and suspects of Hae Min Lee's murder. Just a few of the  people interviewed up unto Episode 4 include:
+* Adnan Syed- convicted of Lee's murder
+* Adnan's mother
+* Friends of Adnan
+* Asia- could provide alabi for Adnan, never interviewed
+* Jenn- calims that she saw both Jay and Adnan on the night of the murder
+
+These interviews are conducted both in person, and on the phone. Koenig travels to some witnesses homes to conduct the interview. Other times Koenig is denied interivews that could have been very interesting. 
+
+By interviewing those directly related to the case Koenig builds credibality and raport with her listeners. This gives the audience the chance to hear a first hand account of what those personally involved in the murder feel. 
+
+Some of those interviewed feel as though Adnan is innocent, while others feel as those he is guilty. However, one commonailty is that both sides seem to agree that the circumstances surrounding Adnand's involvement with the murder seem suspicious. These interviews serve to reflect how many feel divided over Adnan's innocence which has lead to his many appeals for freedom. 
