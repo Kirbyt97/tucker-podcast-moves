@@ -67,3 +67,12 @@ These interviews are conducted both in person, and on the phone. Koenig travels 
 By interviewing those directly related to the case Koenig builds credibality and raport with her listeners. This gives the audience the chance to hear a first hand account of what those personally involved in the murder feel. 
 
 Some of those interviewed feel as though Adnan is innocent, while others feel as those he is guilty. However, one commonailty is that both sides seem to agree that the circumstances surrounding Adnand's involvement with the murder seem suspicious. These interviews serve to reflect how many feel divided over Adnan's innocence which has lead to his many appeals for freedom. 
+
+### Archival Material
+
+There is frequent use of archived material in this series. Since this is investigative journalism the use of evidence is extremelt impotant and appropriate. Some types of archived materials used are:
+* Police interogations
+* Lee's diary
+* Evidence used in court
+
+Police interogations and court evidence are extremely important in *Serial*. They are relied heavily throught the series, but particularly in Episodes 3 and 4. Episode 4 is almost enterily police recordings of another possible suspect besides Adnan. These official interviews and intergations give listeners context in the case and allow them to understand where the prosecution was coming from. 
