@@ -92,7 +92,7 @@ Most of the talking is done by the host, Sarah Koenig. Her speaking is combined 
 
 I would say there is a combination of scripted and non-scripted elements in this podcasts. The narrated bits of this podcast are scripted, while the interviews are not. 
 
-Even though I would not consider the interviews scripted, Koenig most likely has a set list of questions or prompts she wants to cover with her guests. Having this list of topics helps keep the conversation on track and give her usable footage for the podcast, but it is not scripted per say. 
+I believe a true interview is not scripted. Even though I would not consider the interviews in *Serial* scripted, Koenig most likely has a set list of questions or prompts she wants to cover with her guests. Having this list of topics helps keep the conversation on track and give her usable footage for the podcast, but it is not scripted per say. 
 
 ## Conclusion
 
