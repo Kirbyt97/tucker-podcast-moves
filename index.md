@@ -92,3 +92,7 @@ Most of the talking is done by the host, Sarah Koenig. Her speaking is combined 
 I would say there is a combination of scripted and non-scripted elements in this podcasts. The narrated bits of this podcast are scripted, while the interviews are not. 
 
 Even though I would not consider the interviews scripted, Koenig most likely has a set list of questions or prompts she wants to cover with her guests. Having this list of topics helps keep the conversation on track and give her usable footage for the podcast, but it is not scripted per say. 
+
+## Conclusion
+
+In conclusion, it is no wonder why *Serial* was so vastly successful. There is interesting content that is portrayed in an intreguing manner. By using literary techniques, such as cliffhangers and asides, Koenig is able to keep an audience intreguied for episodes to come. The use of a comprehensive, easy to follow orginization allows the listener to understand the cases with ease. 
