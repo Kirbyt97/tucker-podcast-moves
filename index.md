@@ -20,3 +20,7 @@ I listened to four episodes of Season 1 of *Serial*. Most episodes are formatted
 1. Next, Koenig will typically include a counterpoint to refute the previous topic- wether it be in Adnan's favor or not. The same evidence will be included
 1. Often times Koenig will insert her own opinion after the point-counterpoint approach. 
 1. To conclude the episode there are often cliffhangers alluding to the next episodes topic
+
+In my opinion, Koenig's approach is very sucessful. By providing a point followed by a counterpoint the audience is allowed to formulate their own conclusion. I did notice, however, that some of Koenig's tactics are those usually reserved for fiction. She makes frequent use of cliffhangers and often interjects her own opinion. By interjecting her own opinions of the case, I am unsure as to what degree the audience is meant to formulate their own opinion. It is clear, for the most part, that Koenig belives Adnan is innocent. Despite providing points that may show Adnan in a bad light, it is clear that the audience is meant to feel sympath for this possibly wrongfully accused man.
+
+On the other hand, by incorporating tactics not typical of journalism, Koenig is able to envelope the audience in the story. By using cliffhangers the audience is left wanting more. And by including a point-counterpoint approach the audience is given the chance to come up with their own opinion about Adnan. 
