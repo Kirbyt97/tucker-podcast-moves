@@ -55,33 +55,33 @@ The theme song played reflects the mood of the series outstandingly. This song i
 
 ### Use of the Interview
 
-*Serial* relies heavily on interviews. Koenig personally interviewed most major witnesses and suspects of Hae Min Lee's murder. Just a few of the  people interviewed up unto Episode 4 include:
+*Serial* relies heavily on interviews. Koenig personally interviewed most major witnesses and suspects of Hae Min Lee's murder. Just a few of the people interviewed up unto Episode 4 include:
 * Adnan Syed- convicted of Lee's murder
 * Adnan's mother
 * Friends of Adnan
-* Asia- could provide alabi for Adnan, never interviewed
-* Jenn- calims that she saw both Jay and Adnan on the night of the murder
+* Asia- could provide alibi for Adnan, never interviewed
+* Jenn- claims that she saw both Jay and Adnan on the night of the murder
 
-These interviews are conducted both in person, and on the phone. Koenig travels to some witnesses homes to conduct the interview. Other times Koenig is denied interivews that could have been very interesting. 
+These interviews are conducted both in person, and on the phone. Koenig travels to some witnesse's homes to conduct the interview. Other times Koenig is denied interviews that could have been very interesting. 
 
-By interviewing those directly related to the case Koenig builds credibality and raport with her listeners. This gives the audience the chance to hear a first hand account of what those personally involved in the murder feel. 
+By interviewing those directly related to the case Koenig builds credibility and rapport with her listeners. This gives the audience the chance to hear a firsthand account of what those personally involved in the murder feel. 
 
-Some of those interviewed feel as though Adnan is innocent, while others feel as those he is guilty. However, one commonailty is that both sides seem to agree that the circumstances surrounding Adnand's involvement with the murder seem suspicious. These interviews serve to reflect how many feel divided over Adnan's innocence which has lead to his many appeals for freedom. 
+Some of those interviewed feel as though Adnan is innocent, while others feel as those he is guilty. However, one commonality is that both sides seem to agree that the circumstances surrounding Adnan's involvement with the murder seem suspicious. These interviews serve to reflect how many feel divided over Adnan's innocence which has led to his many appeals for freedom. 
 
 ### Archival Material
 
-There is frequent use of archived material in this series. Since this is investigative journalism the use of evidence is extremelt impotant and appropriate. Some types of archived materials used are:
-* Police interogations
+There is frequent use of archived material in this series. Since this is investigative journalism the use of evidence is extremely important and appropriate. Some types of archived materials used are:
+* Police interrogations
 * Lee's diary
 * Evidence used in court
 
-Police interogations and court evidence are extremely important in *Serial*. They are relied heavily throught the series, but particularly in Episodes 3 and 4. Episode 4 is almost enterily police recordings of another possible suspect besides Adnan. These official interviews and intergations give listeners context in the case and allow them to understand where the prosecution was coming from. 
+Police interrogations and court evidence are extremely important in *Serial*. They are relied heavily throughout the series, but particularly in Episodes 3 and 4. Episode 4 is almost entirely police recordings of another possible suspect besides Adnan. These official interviews and interrogations give listeners context in the case and allow them to understand where the prosecution was coming from. 
 
 ### Narration
 
-There is much narration in *Serial*. For most of the episodes I listened to the beginning is purley Koenig's narration of the shows topic. She uses this tool to inform the listeners of what they are about to hear and some importiant things to look out for.
+There is much narration in *Serial*. For most of the episodes I listened to the beginning is purely Koenig's narration of the shows topic. She uses this tool to inform the listeners of what they are about to hear and some important things to look out for.
 
-Narration is also used when Koenig interjects her own opion or clarifies things. She often lets the listeners know what she is thinking and places emphasis on these things. She will also use narration to clarify what the evidence or interviews were talking about. These bits of narration are importiant in helping the listener understand what is going on and stay on top of the story.
+Narration is also used when Koenig interjects her own opinion or clarifies things. She often lets the listeners know what she is thinking and places emphasis on these things. She will also use narration to clarify what the evidence or interviews were talking about. These bits of narration are important in helping the listener understand what is going on and stay on top of the story.
 
 ### Who does the Talking?
 
@@ -89,6 +89,6 @@ Most of the talking is done by the host, Sarah Koenig. Her speaking is combined 
 
 ### Is it Scripted?
 
-I would say there is a combination of scripted and nonscripted elements in this podcas. The narrated bits of this podcast are scripted, while the interviews are not. 
+I would say there is a combination of scripted and non-scripted elements in this podcasts. The narrated bits of this podcast are scripted, while the interviews are not. 
 
-Even though I would not consider the interviews scipted, Koenig most likely has a set list of questions or prompts she wants to cover with her guests. Having this list of topics helps keep the conversation on track and give her usable footage for the podcast, but it is not scripted per say. 
+Even though I would not consider the interviews scripted, Koenig most likely has a set list of questions or prompts she wants to cover with her guests. Having this list of topics helps keep the conversation on track and give her usable footage for the podcast, but it is not scripted per say. 
