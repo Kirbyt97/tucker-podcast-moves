@@ -76,3 +76,19 @@ There is frequent use of archived material in this series. Since this is investi
 * Evidence used in court
 
 Police interogations and court evidence are extremely important in *Serial*. They are relied heavily throught the series, but particularly in Episodes 3 and 4. Episode 4 is almost enterily police recordings of another possible suspect besides Adnan. These official interviews and intergations give listeners context in the case and allow them to understand where the prosecution was coming from. 
+
+### Narration
+
+There is much narration in *Serial*. For most of the episodes I listened to the beginning is purley Koenig's narration of the shows topic. She uses this tool to inform the listeners of what they are about to hear and some importiant things to look out for.
+
+Narration is also used when Koenig interjects her own opion or clarifies things. She often lets the listeners know what she is thinking and places emphasis on these things. She will also use narration to clarify what the evidence or interviews were talking about. These bits of narration are importiant in helping the listener understand what is going on and stay on top of the story.
+
+### Who does the Talking?
+
+Most of the talking is done by the host, Sarah Koenig. Her speaking is combined with frequent inserts of interviews and police evidence. So, despite Koenig consistently doing most of the speaking, there are many other people the listener gets to hear from. 
+
+### Is it Scripted?
+
+I would say there is a combination of scripted and nonscripted elements in this podcas. The narrated bits of this podcast are scripted, while the interviews are not. 
+
+Even though I would not consider the interviews scipted, Koenig most likely has a set list of questions or prompts she wants to cover with her guests. Having this list of topics helps keep the conversation on track and give her usable footage for the podcast, but it is not scripted per say. 
