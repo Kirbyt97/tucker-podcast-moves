@@ -36,17 +36,17 @@ This show also seems to resemble real-life police drama shows seen on the televi
 
 ### Sound FX
 
-I did not notice much, if any, use of this effect in *Serial*. If FX was used it was used very sparingly. Due to the serious nature of the show FX may not have been the most appropriate addition. As a result most of the artifical sounds in *Serial* came from music opposed to effects.
+I did not notice much, if any, use of this effect in *Serial*. If FX was used it was used very sparingly. Due to the serious nature of the show FX may not have been the most appropriate addition. As a result, most of the artificial  sounds in *Serial* came from music opposed to effects.
 
 ### Music
 
 *Serial* makes infrequent, but effective usage of music. Some of the ways music is used in this podcast are:
 * A theme song is played at the beginning of each episode
 * Music is played to emphasize major points
-* When Koening wants the audience to ponder a confusing point music is often played
+* When Koenig wants the audience to ponder a confusing point music is often played
 * In Episode 3 when Koenig is discussing prom, the music mentioned in Hae Min Lee's diary is played
 * The theme song is repeated at the end of each episode 
 
 Music is used infrequently in this series. It is often reserved only for major plot points. Music is also used when it is clearly relevant, such as when a particular song was mentioned is it played in the background.
 
-The theme song played reflects the mood of the series outstandingly. This song is played at the beginning and end of each episode and is also used sometimes when there is an important point. The song is slightly eerie, but also portrays a sense of inquesintiveness. This inquistive sound reflects Koening's own couriousity in this murder case. Sound does a great deal to affect the human mood and by playing this song at the beginning of each episode the listener is always in the proper mindset to hear what comes next.
+The theme song played reflects the mood of the series outstandingly. This song is played at the beginning and end of each episode and is also used sometimes when there is an important point. The song is slightly eerie, but also portrays a sense of inquisitiveness. This inquisitive sound reflects Koenig's own curiosity in this murder case. Sound does a great deal to affect the human mood and by playing this song at the beginning of each episode the listener is always in the proper mindset to hear what comes next.
