@@ -95,4 +95,6 @@ Even though I would not consider the interviews scripted, Koenig most likely has
 
 ## Conclusion
 
-In conclusion, it is no wonder why *Serial* was so vastly successful. There is interesting content that is portrayed in an intreguing manner. By using literary techniques, such as cliffhangers and asides, Koenig is able to keep an audience intreguied for episodes to come. The use of a comprehensive, easy to follow orginization allows the listener to understand the cases with ease. 
+In conclusion, it is no wonder why *Serial* was so vastly successful. There is interesting content that is portrayed in an intreguing manner. By using literary techniques, such as cliffhangers and asides, Koenig is able to keep an audience intreguied for episodes to come. The use of a comprehensive, easy to follow orginization allows the listener to understand the cases with ease. By using actual police evidence and interviews with those involved in this case, the podcast is much more credible and informative. Koenigs use of point-counterpoint allows the listener to formulate their own conclusion about Adnan's innocence, or lack there of. 
+
+*Serial* was so successful that its release help Adnan get another appeal in court. This appeal is set to be sometime this summer, possibly in June. The jury will rehear the case with any new evidence that has recently been ucovered and go through the original evidence again. This fact alone show how large of an effect social media can have when it is successful. 
